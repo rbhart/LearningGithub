@@ -1,4 +1,2 @@
 Hi there
-
-
-Things School
+R Hart
